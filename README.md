@@ -4,4 +4,8 @@ i'm a B.D Based developer who focuses on Python and has hands-on experience with
 - Soon to be for hire...
 
 Contact:
-- Discord: @voby7.
+- Email: vobyisadev@gmail.com
+- Discord: v0b2
+
+i rarely use these accounts so you will probably never get a response back... its better to contact me via my main discord (ripvoby)
+however it gets terminated very often, i try to update my github with a new account asap
